@@ -1,1 +1,543 @@
-':!%5wVm^cG1RkNCe!NwmCGck5!C!^V!cRRVk5&ekkwVeIV1NwReG1!CRRccm%!k^CNG15!Nw^^!c!cNC^V!mkwwRD11%VNCkGkkycGpw1^w1CRe511wCeRwR5wN1c.!k^1^w9!RmKmeGGC5CCm^1!Rkem5,VmwVCe51!5cG5m5%ckRmNeV11wR1RcwYwm^!m1RwCe!G%55cGwc!kGoeC5cbDNwmm!%RRVNc/5 kwm^P1%w1GmV8>Ru5CCN^m!1k!m1e11Vmwe!5kC5cb%5kmm^mN!ekemR}k5NCcc!%wk^mc^5%SkC^EeRRRV5emGck1mepCR!VwmR!51NwVcV%ekGmk0eR?1V^V!CRm!NNw^k%wme!cR5VmeGG1GCVNeVR05eCeG5RmVke1GNw2V^C^cR5cNw!wkFVceRGC5eVe(VG1w{e%Gm5^N!^G!VwwCRcc%RkCmeGm5mk1c5!NwVeVcG%kke^Im^5GkemC%wRc51IR1RweCmGw5eNGx%1%w^e!cR%CN!^%m^5CC(^CqVR1mw{^5!Cw^V!cRRVkm5!ck%VCeeR5%Ve^cG5!C%mV!VkGm!{%RwNm^e!1RNmXT!eNkkmeQCccwGeR!Nkmm!_w1^wcw!nN15w^ewG&5%mw!c1cwRCCcecwVReNGRCeRVcw%wk^m5twRcB^N%Gk5CNcce1kmce6G55mN^mkCG^^C%^CN1kVC!VCNepGeN1w55GVmw%wkkmk!11kVk{!GGwmNR{k1eV(e5Gm5^VCc!5^kVmcHR1k1V^R!m11V1e5V%!GNNc^!eN1%wkeR!VmV5NVwe1%?eRVV5emGG51m%e%1^w%mN!5R!Vwe^GcG%VRe5GkkRG5qeR%VVemCRk%mwY%Vm!Re!GcC%kckRwkR!!!q1!cGw%1GwC5Nm^!cN4GGRn%VcGeyeCwm^c^mN!V5!1C%51^kecU!5RmVGe1GRe!R!cweV^NmeNRVVcGwe%!R5VR.k%CNk^%!VRcVGVG!eRwV17%11wmNmcC5kN^^51wVkCccR%CkeCVGR5%Nc^5!5k5m!,C11w%e%cR%RCmcG%5kNmmuwRwww^c%!RkVeH%15Gcmc!!1G%wkk^wRemGM51mwGC1!%R}V^eRGk5mNC^11GweCNGj55NwC1G w%N%*V1cwRCCG!5wN^m1Vkk%mkAm1GwkCNC%RGVReG^w5eNe^11kVGeiG55mN^mkCG^^C%^CN1kVC!VCNejG^N%Mk5mm;G1k%em!NV5RNkc4%1kwm^l11R1VmR!!1N5GCeGC5Gm1!c1CV!ewGVckVCewG5wGNN^%%^kemc!mk!CBGN%wk^m16Rd%w5ReVVRRZCeeGkRc5wk15wc5^w!/!%Ge^5er^VCw5C%wkkkNwRRmC5GC%^k1mNMC 5N1^k!1mCwweG15wmGNwc5fw^kww5Rc!%kcVcw%C^CwmmC/551bmwCwc^%1kRk%}5^e!V^RkCReVk^cewc1eww5%1k1^1!^^%mcVRNkw!CGww5V5Z1C!G^55G6RGNwVem!ckNVkee1%w551UG1RwmCkcN5CNC^_%mRCm^uGG!w%e1GI5cNwa51ew^C1cN%Cw5eC1!5RCV^CNwGemeee55C*^^!1RNVCV5%1kkm1Cm1%VmeNcewpCwumRww1CNGE5!%ceNGNw=Nmc%%RR)VClkRcwR^k5ck2m5jm1^^Rw!HG%V1%!^GReaCGe^^52G^5k%RVVrmkCc^1C!5^eNkem!WGR1NkRk%{k5mmx^aNk5mR!5R-Vc1Nc55cCcce%!N!%%kN1RV5meCkVNG^c%%kw!RNw^RN=kV5k5Rm55Rw%kkc%w!N%R1c%RGkemCkc!5!Ncm1!1mRV!VwCcwVC!5N%5wwk!w%R1VmRR%cC5mkyeR%V5Vw!GRkVCCmGR5kNR^%5mN^^!!GRVmwNk1.5CC!cV5!1^^N%hk!CV1V%Gkkme!u%VCfc5!Nk^m>Rm1!V!C!GCCV11cU!^RNVcR^GRwR1xmk5GNVmN!NRm!VCCmkN!cR!VRcVReke5RRN^VwkGwN1%CGVGwkkcVwk5!^VCkCk!5C1GCGN%^a%wk%CRGm%eN%^V!m)RC%cw%%GCmct11wVR^c%cRkVeY%15wwG1V1%NGm%kwG6eNC^C%!RNVC!%5wNC^c!RRCVeVw%RkNmRCV15V^eV!Ckmm%oV1cwGVS!V1Gwke%1wk%mNum1GwkCNC%RGVReG^0w%Nw^k%NweeVG55mNG^1GV5%C!^k1NVNe!Gw5^NcVIRe55C5^eNRN%C%VCC1V5RRVCF!mG!!1NVUe5ek1cwCCwc5%cN-LNRwV!ewG^5cwqec1mw!NNECRwV%eVGc5G5Re!1n5RmkV!R,V5emG^mR%e&m1cwmG1m5%!NV^5kGkjVCVVNVwmGRC%V%wVk!wNRk!ERR15Gk!NGcC%NCCGmV&NmmRwG1GN5Mwy5^kCC1m^N%!%}G1NRk5GR15cc^mN^xz%m!RmmGvGRFV%CVkC^R%!^1C^GV%RkC^!!%!Gkk^C!ck%mGRc1GwNCkcGw3VN{C1!wwC^ccGNVceRGV5eNc^m%mRmwOsN1Gw!e!c1RkGcE{15wmC^pe9!cCe%ceC1NRNw5mkwmqRkR5w1e1wc55NNe%mCecVNgVm=wmwGk1CkC%e5me!V!Rm%N%115^URcc!5^mNmRkNNVGCeVV1cGG5mV%kCmwkC!N!51wVR^kV%khm5{m1^1ek!wCR%we11GRGwemcw%*^kww!c11Vmee1!e!C^ec^w!1%?m^N^1e5k!zcN!c^RNRk!C%VCewV11NGC5RV^N5mGN5%%!c1Gm;kcVGekm1%51CV!ewGVc1m!F51!eVCmNCm_kemRk^1NkCw1NcwmGGC=V/w5RewRR1C!cC%VkcmRsk1Ny5k5GmeCGeR%cc5NC^c1Rwm5ecGR5CNee%^^%VCmm1%^RCm!!N1N5mlw1CkN^1!!RwV^ecGGCe1ec%e5mNGC^w%kNm^11>wNCwc^%1kRmkk%c5VVk%V^^!w!K81Nw ^5%%R^V1eNGCGVm1H11Nw5CeGc!mN1c!!Gk%mwck5eNM^5!mR^RC^C!mRGVRR1cRwcwmkc5^ckmVG5*e1Vhe5!C!^V!cRRVkc5!mkcm%JkR5,%e!G^%kN%^1%%RCCNeD5!Nw^^!c515%kV!C^cVC7mRmVNmcCVVwNC55%k51R^511RyVemGR5!G!c!!kkkmnAc1wVweNwkwV5VRVNckc^5{%mwVNwNkN5GG5c5^kaemNk%1N1R%RGk5cGwNRwR5CRR%mmmVkCe1!5RCVckNRk1^fXV1R<1+5!!cN%5cNNkkem1cmi%GweRV!Gc}ceR^cC5%5!5RCwNc%VmkmmG-k1N1VmV!VR%QNO5em^^NkcwNekVCmm%ecVCR!1%5eVRN^mNN^%m!N%N11w5VVGkvkee^keN^V!!mNVReRGeeGCG?L^N(w%c!CRmmhKw%ckRmCR!GNx!1NcNc!CVG!%Gkkme!8O^NGmR!5kw5^eR1V5Nec!VR1VGekGe1VwNCGGNNa^^!wR^V1eR!!R^mGeGmGN!%N!VRcVRekeC5wRqVcR!eeCwqmc%Ok^kN!kcVe^Re^cVekwm5kkec!!RkVmkRR1mk%5eNm5ecNN5mJRGm!kcVew1wckRwwcCe%meeCmc,wmlwRm^CwmVce^e^cXwmG>mm!wmmcCw^CNC^1NmRkRewl1VwN1c1!Gw%!eV^%eN^!kARwVRC1wk5RNRc5%5^RmumwCCVV11G!Gm%5e^^we^mck%KG^GmkCGVwGwcw^N.GmC<RmmwkweC%e%5G1GGk!GG1!%1CY1eG!!cC%^^kNkkem1mcCGVe1C1VwmCYeR^cC5^!kmRkweA!GRwVCk5Rp!w%RCw1R^UNVmNwwwGG^C1?!k1m!mmRmB^%CC^kCC5N%CkRmec1j^^K7^VV!w1C!!RkVVecGR5k5Gs!GGwRC!ck%^N5^kGCwRC%cV%ckGk%Gc55k^^^!qG5V^M!GGVw^!!VRVVceR!!RmwmcG5VkN^(!5Rw1GcB%%k4!wN11k5CCmG^R^V1eN1_w5CmcGm7{e^%!VRcVReC1!ww!^k1%NNs^5!mRGVkee1%wVC11!%CN!^w!V/kNwNVm%Rm!ceCp!Gw1wGRcN!1^C!R^mm^m/k%V9Ck!RkkVe;%1Vwm5NIe1Vwwe1cC!kNIcw!mRemNeeR!wk^c!RRCm!.w1^w15mNF5VNk^G!kRem/cw%Gk5mR!w5w^!!5RmVGekGem%cRe!1V5VNc^R!kRN!5N51maec5k%cCVme!GNe!k^^1%kkm^=!^5GC1^N%/k5mw^%%RR%wND51s5eC!GC5VCNc5%CRc^GGcwmNk^e%%k5R1ck%%k!^^(RGkVcecGm51C1>CRGV%eVGc5G5ceV1k%Ge%ce55k^^%GRVrNec%%VkmRRG%5wN%%me!1Nm!HcG1wRCe5C!!N(mc!ck!m5cm5%k1mN!SR!1m^N!eRN5m}k1^5RCRcwRmm^e1GNwLC!C!1^5kC%c15%kCVN%%R%m^ee1NwcCw!VRCVGekGewW5^jm1cV!CVG!51Vk!_1Pw5Cmc^VR!eemGc5mc1V{!eRem%eCGeV51%mk5^N^^%1wweCccR%CkekmGc%CkNc5!^1GVGeN5!Ce^V!cRRVk^c%^k1mGpe^G!!RwGR5wCi^1%Gk1%c>11VV!eRVc5CN9cR!Rk!mXS11VN^c5!RRCm!t%ekR1mCjkGmwme1G%55CVM^RVwRCCG!5%%GeRG!5LCm^1e1Nl^%!VR5VV^N5;k!mwp^1c1Cmw!%R!V!CCcewVNG^R?NN!me!V1^VSe!%%k5mm/G1kwee%GV5cNR^C%!Nc1^?kRVVIe5Gm5^5wekG^!CCkc^%NV5ekG^51NN^Cc!wVCkcw%Nke^^G1w^NCc!%wkVVRRmV!V!RN5^mR5we%1mwwmN!GR!Vwe^GcG5Vwzmcc5NCNGw%1k^mkGNwGC!cw%^kckec^5!NV%ceNR5mweG1RkRmC!!RwV^e1GNw7%5cc5mkkme!%R511^k!%R!m^eRcNwRCmcG5!kNeCkYw%CVcc%GeNkwcc5%k1cVkeReNmV5N%w^1!G#1c%wRw!C^55GrRGNwVemwVeJN%^^^wem^Yk558NV^w!^R1Re^G!^1RCRGC%eN%^V!m!kN%c5!ck1!GBe1^V!eVwc5CkecmC%cV%cG#5kNw^^!1RRRVc!%!RkmZ!acewVewcek-m^tw1^w1m,Dw1V5eC^c5k!mR_V1cwRCkC51wV%eVcC5QNVc-1GmVCeG%5VNN^R!Ck!mmlk11wNerG!RGwGeCGGkw1Gtc1RwCCem^Nmw1e1Gme%RmcN%ekN%!C11cVke1VTG^6^e1^m8%^!kV^xVcV!N%wNG^G5GC!1k%!RmGweV%CVeVCkc5Ge!kc^k^RCm%^!CCmeCN5k%%%VR^!mmR!CRCmV{^G1c55DNm%eC55e%!c5%mkGm1Ve5mNc^mk1G5V!KV15eGw{RlcV/c%c!e%e1Rw51Re11VcNcmB^c%kkkcN5wee^V+GCcwc^!1%1%!RcNwV!Rkeke5G^1m%51w%%^!V^V1CkwR1YV5e5G15kkeRcmVERmwN!^c!VRcVRek%QkVVes^R4N%^G!mRGVkeN%wkwVc!!1RN%^V!^R1VNac15wmCGcC5mN%^V!cRGNmcD!wRemRHe5%Nc^m!GRkVNcV!Vk1mVcC5!Nw^^!1RNm<C5CVwRejce5%NV^m^5wJR!xm1Nw1CNGB5!5%e^ce55NN7^1CwRCCG!5%VGeGcNwmC0Fc1CwkCeG%55VCCRGmwwmm!511wNe2G!ckwNee^!5GNNc5!CkemV!!5^NR^N%pk5mN>G1kweew1^5cNR^C!e%VNRcG%ckcmVImRkVxe%cwwcCmck!Ck^mcGGwmNNco%5kwkDcw5%R5mG!1RGm%n%Gm5Rmk!RR=V5emG^cCVNeC1!wkCccm%5kw^1!%RRVNcV%RkGmk&eRBkRmc!^R%C5G!%^k1mN*C!Gkm^!!eGwmO(m^1w%Cmck%^VGZVGNw{C5cw^CwweScm!^kk^k%5RVmVcG5VkN^8!5Rw1e^X%%1wVGOGRiwmC5ccR^V1eN1nw5ewcG%kkecwV^RcVReC1VwwC^c1wNNN^5!mRGVkee1GwVe11^%CN5^w!cR1VNxI15VmCGck%eNw^V!1RR^C!w1ww^C1cN5FNc^m%RNVVeLw1VwRCRcC5!NwcG!1RNmooV1mwRCk1eV%NV^c!RRCm!YG1^VkmwG_5VNm^R!kRem%ZVk!wRCCG!5mN^^k!NC)^wFm1GwkCeG%5RNc^R%^k!mm,^11wNe}G55mNe^k!ek%m^0c1kwCe!Ge5^N1^N%!k5mm-Gkewee%GV5c%m^C%!kwm^i11NVveGh55GNk^e%mkVmG_R1eV!ecCG51NNc0%^kmm1UkR51weVGc5RfAc!%Vk^m1VcR&V5emG15kNec%%V!5mR6eR!Vme^G15NCt!V%mkGmk!!R%V^ec1!1RC!cw%^NwmN!!R5V^eG1HG!C%cV%cNVmC!%RwVRwkGNwBC515%GkNme%wV1VcekGCw%Cwc^%1CNG_!5RcVGekGew1CVccVkkC^5!wR1V1eN1Fw5%RcG%Nke^%!VRRVRn%e5wwC^c1wcNU^w!mNG^kee1cwVCNcR5%N!cmcNR1mVnF1cwmCGck%ee!^V!CRRmm*!1mw^eQe15#NG^m%CRkm=0%1mwcCeCn5!Nw^^%eRNm!>511GRCkce5%Ce^c!kRC^51G1^V8CNG%55Nm^G5kG5m%8R1cV!CCG^5wNNNc!Nk^m5}m1GwNCeG55VNcee!Ck!mwjk11wNeKG51eNGc%!ekwmV#G1RwC11Gw5RN1^N%Zk5mm4emEwee5GVw^NR^e%!kmm^_CeeVQe5GmwcNkcX%%N^iN#R1eV!emG^51NN17e^kmm1-kR_V%ekGcwNVwc!%mk^mNUNR4V5em!%5kCDc%%^kcmk(CRV1me^G15NC0c5%^kGmk1CR%VVecGk5CC!cw5kk1mN!6R5k^eGGk5eC%cV%ckRmCVkRwVce1GNwnC5cm%e5Gme!5RVVNeRGew!CVc^%C!e^q!5RmVCek1Lw%CGN1%RkC^!%VR^VReNR%CcCmc1%kN5^%!VRcmNee1!wmC^ck%NNh^5!mNmVkr%1%wmCccR%CN!c^!^RRVNW515w^CGGCw1N%^m!cRkVCf!1wm^eLcN5!N5^^!Gk!VehcQ5wcCNcC5!Nw^c!1k7mni5CkwGCkce5%NV^c!RRC1^/w1^w1CeGI55Nm^Gm%Rem%UV1GwRCCG!5wVj^1!Ck>mVSm11wke5Cw5VNc^R5%k!mVh^Rke%e}Gw5mNN^k!ek%^^^C1RV e!G^5^N1^N%)5kmmp11kV!e%Gm5cNR!N%!kwm^MR1NV(e5Gc5GNk^e%wkRmcKR1Cwe^m!m11m5eN%VkRmG6k1eVa^c,cRNVcc%%Vk^m1/NReV5emGG5Ce!c%%VkcmGr1m8%2e5VRekTeVmkVGR!C5C%5%^1c!cc^C5G5%^k1mNrC!Vk1^w!^1%m2C!GkwkCScc%wNw^NGewVC5cm%Gk1kmc%5^keeN1Rw!Cwc^%c%5CwGmOmNk^e%DR1Vmyk1Cw%^5!NR^V1eNGC1VV1yw1^5eC5Gy%kVNjk1!wwC^cc^ewCCeG%5NNG^^!wRVmR951kwC^m%5R1VNI}1!GkVN7ec!wGCNG5%CNe^V%!w^C1cN5sN5^m!GkwGe wR(wcCRcC%e%GCeGR5!k%^^%^kCmB!t5wNR^c!RRCVec5!^k%mC!%5VNe^G!kRem?Vm!cRNmc!i1wwGew!ekVm5Qm1Gw1wkd%R!wk^N%5k!mws^1cN5mKzRRGNRc!!ek%mV}m%CRC^5pC5GCp^N%fk5mwcc%Nk^me!c5cNR^C%!kwG!S11NV.e5C!5GNk^e%%kVmcdRRw%mewG^51ymcs%wkmmGvkR51weVGc5RY^c!%Vk^^kR%RFV5em155kNec%%V55mRneR!VVe^G15N29GN%mk1mk!_R%m_ecRRV%C!cV%^kRmN!^R5VmL1GkwqC%c^%ckRmC!!RcV^e1GNwiC5cc%GN#cR!%RVVc!NGCw%Cw1^w1kN^V!5R1VGY?GeVwVRcc5%kC^m!wR^V1eNRew5CRcG55ke^w!VRCkceC1mwwe^c1%CNa^w!mRN1Cee1%wVeccR%eN!^cmGR1VNy8kVwmC1ckwee%^V!NRRm%;!1cw^ekz55_N1^m!kRkVe3%1Vm^CRG55!NR^^!kRNmmNc1mwCCkR!5%Nm^c!RRCmVVm1^w1CNR%55N^^G!k=1m%BR1cwNCCG!5we^CG!Nkmm56k1GV%CeR%V%Ncc!!Ck^mwyG11mN+VG55kNGc%!ekRmV<cRNwCeGGw5^N1^N%<k5c!*GRVwee5GV5cNR^C%ckw^!D1R%Vte5Gm5Gem^e%RkV^%iR1eV!ewVC51C5c_%kkmm1&kk!e^eVGC5RCNc!%wk^^kc5R.V1emG15kNec%wVGkmR!mR!Vce^1m5NCOw1%mkemk!^R%Vmec1!e%C!cw%^NwmN!!R5VceG1uG!C%cV%cNVmC!%RwmGGeGNwfC5Gw%Gkkme5%cGVceRGCw!CwGw%1NeCm!5R^VGqwGew%CVcc1wkC^!!wRGV1eC1Sw^5ccG%kke^%!VRGVReCwYwwC^c1%CNH^5!mkmVkee1%wVVGcR%CN!^w!^R1VN+oCCwmC1ck%eN%^V!ck!kRx!1Vw^CecN5!N5^^!GkER!b%1VwceUcC5%Nw^RmkRNm{r5R%wGCNceww^1^c!kRCm5Lw1^w1,Nmw55N^^G!NRem5.V1C1GCCG55wN^^1!Ckammgm1GG%CeG%5VNc^R!Ck!mwwN11wNeLGw5mNG^k!e/cmVLc1RVle!Gw5^N1em%gkwmmyR1kV/e%GVN^NR^C%!kVm^,11Nmwe5Gm5GNCcw%%kVmc<G!!kV^R!15kC!c,%5kmm^mw5!1%e^GN5RNCc!%%5NN1cG%wVVekGG5kNec0^NwVCcc%5%VmeNG15NCic!c%5NCGG55wV^_%GR5CC!c%cmwVNNGc%^N^we%(R^CwGC%ckRmC=e!VkR^k!!k5!%;c1(w1CCw!5!kk^k!-RcVc_w1Neke%c5511%eC1Vw%CVcc%G5!CGGx%RNRee1cw5CmcG%1%!eEG%5Rke^R%wwmemc1%NN6^!mR5!NG^%e^RNmGUNR!%5CRce5VNM_%1ewmCGck%N%Ne5c1%RNGmz!eR^^%E!R!NV^R!GRkVe4_6!Rcm5uR55NG^^!1RNVCcG!mk!meG!5mNV^c!RRkk5^c%1w1CNGj55Nm^G!k1e1!b^R!wRCCG!5%55CCGC5%N1^m%mkee!G15VNc^R!k%UNe^^5%k!^!!V5cC5^k!ek%m5mR!eNV^wCe1^wRe!GRkVmRbG1kwee+!c1cVNec%5k1m^S11NwCVm4CRkV^e5%%kVmc-R1CceewG^51Ce%V%5kmmGTe1eV%eVRc1VNCc!%wk^m1!CRB^5!5GG5kNec%%VN5mR%CReVwe^G15NCDcN%mNRc%=eRwVVeCGR5CC!cw5!k1mN!lRVVmeRGkwVCNcV%ckR^^!!RVV^eRGNww5Vcm%Gkk^c!%RmVceeexw!Cwc^m%kN^!!5Nm^Gek1hw%CVcc5VkCc5c1R^VNeN1kw5CmcG%kCC^%!mRcVCeC15wwCNe^%NN!^5%VRGVNee15wVCkNN%CN!^w%mR1VCZB1^GcCGck%eek^V!GRR^CNV1wwcC1cN56Ne^m5GNkVet51VwGCRGc5!CmCN!1k&mqpc1mwGCkceV!NV^G!Rk!m!,m1^V=k%GY5wNm15!kkgm%_V1cwewOG!5wN^1w!Nk!m5%m^Nwke>G%5VNcc^!CC!!%M^1RwNe!G55RNGGk5Vk%mm_c1kwCeRGwwGNR^N%5k5^mjG1kwee%Ge5cNk^C%wkwmG}1R5m1e5G^5G/m^e%5kVmc&RR%15ewG^51(^cl%wkmcGCb1eV5eVGc5RC1c!wwGRm17CRaVwemGC5keeVm%VkGmR+eR!mwe^R1!!C0cw%mk1mk!5R%VRmVGR5eC!1^%^kRmN!!R5V1wRGk5eC%1c%ckkmC!VhmV^e1GNm1C5c^%GCkw5!%RmVceRGCwNCw1^VVkN^!!5R^VGZ!Gem%eNcc%kkC^%!wk^V1!NRRw5C^cG%Nke^m!VNcVNeC1%wwCcc15^N=cV!CRGVeee11wVCccR%CCj^w!cR1mhaT1VwmCem!%eN5^VVBRRVe&!1ww^CCNe5;N5^mV!RkmKd%kVmcCRG65!NV^^!kRN^%^G1mwNCk1!5%NV^c!RNNm!2m1^wCCNG%55NkwC!kk!m%5N1cwkCCG!5wNRkk!NkQm55C1GwNCeG%cZNc^N!Ck!mw#^11mNGwG55cNG^C!eNTmV(ckcwCeVGw5^N1^e%Oe5c5>GR&we,mGV5eNRGC%Gkwmkv11CV<ewGmwGCE^e%mkV^!FRR5V!ew1!51NecT%^kmm1Wkk!e^eVGG5Re!c!%wk^c1C!RfVwemG15kCkc%5^5CmR! R!m5e^G15NC=ek%mk1mk!!R%VmecGeG0C!cw%^k1mN!!R5VmGcGk5eC%cm%ckRmC!!RwV^e1GCw9C5cm%GkCme!%RVVcmkGCw!Cwc^%1kN^,!5VVVGekGew5CVcc%RNV^!!wR^Vkf51 w5Cmc^cRw1epGc51VN2G1!wwC^ccc5wwem^c%NNNcw!1R^VkcN5cN!^w!^Rck5^C%wkImR6RGewwCG!1klVC.!1wwVm?eN1kw^^c%5RkVeX%151GVe!J1eVcecck5!C%MVR5wGCkce5?5RCcG5w!Rmc%%cGkmwvc1CwG^R%RRem%KV1m1UmmFC1^%ke%GCw%CmVc%Pkwm1pV5mNc^R!Ck!^c7^11wNU%NV5mN1^k%5k%mVBckRmce!GV5^NR^N%%k5^cER1kV%e%Gc5cNR^C%!kGm^sR1NV5e5Gc5Gekcw%%kmmc)k1CV^ew1Gw1NNc5%5k^mG?k1eV%eCGc5kNCcw%wkGm1%NN V5ecGG5NNecG%Vkc^1jCRVVwe^G15NCTc5wVkGmC;eRmVVe1GRwwwCcw%Gk1^1!+RwVme1Gkw55wcV%ckR^R!!RVV^eCCewfC5cm51kk^.!%NV^ceR1!w!Cmc^5!kNc%cGRmVCek1ww%CVcc%Re%^!!^R^VeeN14w5CmqG%kN%^%!VRcVReC1!ReC^cN%NN5^5!mRGVk!k1%wcCccN%CN!^w!^VGVNXX15w^CGck%eNw^V!cRRmWf^1ww^C1cRR%V%CmGe5Gm!T^1VwcCRckRwwweGGwRCm!X51mwGe1ce5%NV^1%=RCm!lw1VkMVNxk1^Ncc?!kRem%*5%8k1VC}GRVVG^k%Nk)m5vm1^GN^5!1c1VGeGG1!NNccc!kkwmg!(RGNRc5!ek%mV3m%ekR^YHw1GVw^N%Lk5mm#G1kwek%Nw51Cm^C%!kwmVVe%VN!m^ec1NVNpwGmwmmc/R1CV!ewG^51kNRe%VkRmG6k1eV ^RYcR5m!c!%wk^m1+NR>V5emNG5Ce!c%%VkcmGme%VN5^%!%1eVg&mG15kkCG%5BNmmc!!R%Cwcw%GNcmN!jR5VwwR!1RRVC{G1Vw5C)c!5^ke^c!1w%CCcm%GkkmNmc%GNRVN!%k%mGeeGkw!^%!cRmVGekGNkVVVu11VkC^!!wR^V1!e1jw5CmcG^^ke^%!VRcVReC1!w1Vwc1%NN&^^!mR1VknX1%wG51cR%CN!^c!^RRVNTweVwmCGckV+N%^m!ckN,56!1ww^CkcN5*N5^mmwRkm#v%1mwcCRcC5!%c^^!1RNm%A51cwGeHC!5%NV^c5VRCm%Yw1^I^CNGV55Nm^G!CRe^%!c1cV>CCGc5wNR^1wNkem5JR1GVVCeGN5VC1ce!Ck^mwOc11wNeqR5w^NGc%!ekcmV!V1Rm/o1Gw5eN1c^%Ok5mmbGkVweecGVwBNRca%!CwmkY1R5V/eGGmwVNkGeemkVmC7RRwV!e^G^V1!Gc;%GkmmeykRVV%_^1!5RCmc!%ck^m1;NR VNem1%5kCwc%%VkcmR!RR!Vke^155NCoc5%mNmmk!VR%VVecGk5Ce5Gw%^N2mN!CR5VmeGRkwmC%cR%cN!mC!GRwmG^2GNw^C5cR%Gkkme!%%CVcS!GCw5Cwcc%1N5%w!5RmVG)wGew5CVc1%RN%k5!wR^V1rV1(wwCmGRN!ke^%!VkmVReC1!mwRRc1%NN.^5!mk!Vk!!!cwVCGcR5VN!^w!^R1Nmy#15wmCRck5tN%^Gm1RRVCF!1ww^CRcN5=^%^m!GRkmyE%1Vwce^cC5!Nw^^cRRNm/_51mwGCkce5%%q^c!kRCm!_w1^w1e5eN55N^^G%!Rem5&V1GwRe%C55wN^^1%%k3mw;m1NGCCeG%5VC5^R!ek!^m1k11wCe?GV5mNG^k5eGmmVxG1Rwee!GV5^CMNR%akVmm G1kV,e%G^5cNRkw%!kwm^}11NV7e5Gm^eNk^e%%kmmcBR1CV!mNG^5RNNc%%5k^mG7kwCV%eVGc5kNCc!%wkGm1bNRZVVb1GG5kNecEecm^5NkYCfkmmCc1&^^kbaVVGk=kee^R3^^mCwwFC^cw%^k1mRce5wkC^m!ewlC%cV%ckR^w!!RwV^e15Nw7C5cm%Gkkme!%k^mNeRGew!Cmc^%1kNc%!kRmVRek1Ow%CVcc%RC!^!!^R^V1eN1dw5CmGR%kNa^%!cRcVkeC1!mfC^c1%NN!^5!mRGm^ee1%wVC1Gm%CN!^w!V!rN!c54VR1m1!!1^wwCG!1k9VCp!1wwVm,eN1kw^^c%VRkVep%151Nm5feRwVcC^GV%!C%^^%^wRe%ce5%NV^m^55!Nk^c!1wkA!G>55Nm^^mk5kCV^NCwGRw5CRm511!GCe^%G%^^GG!V1R!V5^NC^R!Ck!m%cm%RkVmN!m5cCw^k!ek%m5VR%5NYm5!%RwV^e!G%wmmc!!1kwee%G5c1VGeRGC5cNGcN1emwe5Gm5GN1keGewcCrw^eC1mwCkm_N^kV%NVeVCkek^c!6^cG1w5NCc!%wkVkGcc%8NRm1!1RCC!cC%VkcmRok7kN%mGp1Rc5eeCGmV!CyG&R5VmecGR5CC^cw%^k1me!cR5VmeGG11wVme^1RwGCeV%RmmGe1GNw C!NcGGwRe%Gm5mkkwN!kRCm^dc1cwcCRc^5^VRL%Gew%CVcm11weCGG!51Vkz11sw5Cmc^^Cw1C1c^5%1kc%%wk^mVW^mCN%^^!mRGVkeN!eRGmCcNVwN!^w!^Rc5oGe^Vec!c<%1^k%5Ck1C1NGe!mNq5mGRkR5w1CmG^CRC%NwVVR1!1!!R%1m%^G^5wceV5eR15Ckce5%NV^c%cRCm!rw1^G!CNGS55Nm^G!kRec%%!1cwRCCG!5wNG^1!NN^m5)m1GwCCeG55VNcGm!Ck!mwX^11wNeDR5V5NG^k!ek%mVHk1Rm<A%Gw5GN1^C%,k5mm%GRRweewGV51NRc5%!kweVu11eVBewGm5GNk^eCRkVmcuR1CV!eVG^wke%cy%5kmmk=k1eV%x^115RNec!%1k^m1fNRhm%emGG5kC!c%%mkcmR!kR!Vwe^GR5NCUc5wGkGmk+eRck%ecGR5CCwcw%ck1mC!.R^1ceGGk5eCVcV%GkR^%m5RwV^e1RwwbCwcm5R^!me!5RVV1eRGCw!yw1G%1kC^*!wRmV1ekR!wGCVcR%RN!^!!wR^V1!w1zwwCmck%kN!^%%^kRVRLz1!wmC^c1%Ne ^e!mRRVkH!1%wmCcGN5wN!^c!^kwVNM(15wme^ck5!N%^G!cRNVC%!^cw^CkcN5%N5c!!GNk55/%1^wcCNcC5VNwG^51RNm%+51cwGewce5c55^c!eRCm!gw1cw1CCGy55V1^G!kRem5OV1cwRCC!^5wNG^1%!kfmVZm1GVNCeGw5VNc^R!Ck!^m!^11weeEGG5mNG^k5!N%mVoR1RV5e!Gw5^N1cY%tkVmmKR1kVqe%GVwkNR^e%!kwm^311NVweNGm5GNk1!%%kmmcTReGV!eVG^51NNcH%5kk5C_kRYV%!^Gc5kNCc!%wkRRkuNR4V5!cGG5NNec%^6kcmk<CR!Vwe^G1VNCkc5%^kGmNEeRGVVec1;5CC%cw%Gk1mC!_R5mkeGGN5eC5cV%ckRmC%1RwVce1GNw;C5cm5RC^me!5RVVCeRGCw!emc1%1ke^&!kRmVGekGewcCVcG%RNT^!!VR^V1Gk1rw5Cmc1%kke^%!kRcVReC15wVC^c1%NkC^5!mRGVkee1%wVNck15gNm^w!^R1N!m!HVR%wCck%eN%^V!cRRVCz!CwwGC1cN5.N5^m!GRkVey%1VwcVRkC55N1^^!1RNN5^^!cR%V1em55Nm^c!RRCm!bw1^w1CeG.55Nm^G%%Rem%{V1c!NCCG55wN^^1!Nk m5!G1GweCeG55VNc^R!CkRmwdR11wCe7G55mNG^C!ekVmVS11RV=e!GwVgN1^e%gk5mm)k1kweemGV5cNR^e%!kwm^5C1NV_e5GmcwNkc3%%kVmc=R1CV!}5G^5kNNc,%5kmmGIkw!V%emGc5NNCc5%wCNGeONR!V5ekGG5NNecV%VkkRNnCR!VweNG15CCAc^^ckGmk?eReVVeGGR5C%kcw%ck1mC!_R5VmeG1R5eCwcV%ckRmC!!R1RVe11fwfC5cm%1kk^!!%RVNkeRGCw!Cwc^%1kN^WVGRmVGek1!w%CVcc%RGV^!!VR^VNeN1!w5C1NR%kke^%w^RcVkeC1!ceC^cR%NNL^5!mRGVkOC1%w^CccR%CN!^w!^wkVNi!15wcCGcC%eecs%!cRkVC551wwcC1Gw5<N^kc!GRkVe5w1VwGCRcCccNw^c!1RNm})51mV^%5ce5wNVcC!RRem!DV1^wC5eG.55Nmce!kkSm%OGe1wRCCG!mmN^^R!NkM1C_m11wke%G%5VNc^RN!k!mmy^11wNe9G5wcew^k%%k%m^nc1RwCj51N5^NC^N%%k5mmZG1kVGe%Gm5cNe^C%5kwcN%!1NV!e5kc5GNN^e%5kVmkVN1CV!ewkG51NCcu5V5kmGuN1eV^eVGc5Re{e^%wkGm1!!R<V5emGGG5NecV%VkcmR<CR!mmmNG1w!CJcV%mkGmk!5cVVVe1GRmeC!cV%^k1^k!yRGVme1Gk5eC%cVVckR^V!!RcV^e1GNw&eGcm5!kk^5!%RVVceRR5w!CNc^%NkN^7!5RmVCek1Gw%CVcc%RkC^!%^R^mVeN1Vw5CmcG%kNe^%%!Rcm<eC1!wwC^1w%NNG^5%%RGVCee1%1kCcG5%CNG^w%fR1VN1G15weCGG!%eN%^V!ckNVCWG1wweC1Gm5Ke5c!!GkwVeA11VwCCRcCwRNw^C!1kwmHKR1mwGeNce55NV^C!RkVm!&cLkw1CeGWVVNm^1!kRe^eUV1GwRezG!5wN^^151kbm50m1RwkCeG%5V^^^R!Ck!mVp^11wNe^G55mNG^C%^k%mV8c1G1Nmkiw1GwCNVG5kV^%xG1kweeheXRmwNCCGk%5C%^15Vkw^wGcw!Nk^e%%k5k^cm!CNGmc!cRkNeGz%5kmmGd1!%km^lUkR1Vku%1^%GNCcC5VkRmcqN5CCcc%%VkcmG^!%VkemR!GRRm!qm%cNwmkLeR%V5wCFek!w5ec1cweCVc%%^VceCGk5eC%c5GC5RC1cVRwV^e1GNwJeDcm%Gkkc!VRRVVceR1Vw!Cwc^w1C!^t!5RmVGek1Vw%e^GN%RNy^!!cR^V1eN1)wNCmcG%kN!^%!^RcmN!V1!wVC^G!%NN*^55mRkVksI1%wmCccC%Ce!^N!^RRVN7!15wcCG1kweN%^^!cRRVC}m1wVG%5cN5wN5^N!GRkVe%%RRwcCecC5VNw^c!1RNmkq51RwGCNce5%NV^c%CRCm5gw1kw1CCGn55e%^G!kRem5LV1cwR,1G!5wN^^k%5k+m5sm1^1wmk/e1GVG^C!Ck5mku^11wNCCec1CVRewGX5NNG-1R%wCe!Gw5VV%e11%5^C^ck1kwee%GV5cNR^C5V+wmG!^1NVpe5GwcRm#8_155GCVcC!5k!me!R1CNecc%5kmmGD145NGmV!wR1VGeV%mkkm1.NRvV!wN!^R^V%cw5%kcmRPC1e1m^cTC1Nm5e^cGw^C%cV%NkGe1105CC!cw%V%mNNcc5tVceNGk5eC%c5c,wNRC!5R1V^e1GN5C5ee11mV=e!!wk!VceRGC5e5ezVGk5NCR^%5!kGcw!5k5C^cN%RkC^!!%%kN%^1!5wVCkcG%kke^uGc%ckk^G!VwmeJc1%NNr^!^%%NNN^!!GRVmV{C5JC9^w!^R1VRVV!Rk5VkC!1^V5e^GRYNNV^G!eR1CkG%5tN5^m!^w%ke^1%cw1ewcC5!Nw^Vmk%NNR^C!^RGVCbG5wN1^c!RRCVe^1!^kmm!G%5NNm^G!kRNk!c.!cN5m%!%c1VRe%!ekmm5+m1Gw1ww!51VVwCe%gN?mw*^11wRV%aVR^V^e^G151C%^C<*kem!!&1RNkcw%_k5mmn^%wkCm%lNRGVNc7%Nkwm^711R1mm^!GcRV5e^GN5cCG^e%RV5eGG^51NN^Ccj5mCVcgR!V^eVGc5RNkKwGwwGCwMeRcV5emGG515CeNGVVaNece55VwecG15NCAcc%mkGmk!!RGVVecGR5km%ec15wce%cwRVVNeGGk5eCheN1VwNC%G%5^VGeeGNwjC5cwcm5kCRcmR^VCeRGCw!C%H1G15CCRc^RcmtekGew%C5bt115CCGGV5GVReN1iw5Cm1w%kke^%!RcNVReC1!wNC^cR%NN4^5!1(RVkee1%wCCcck%CC5!G!^RRVNhw15wmCG1kReN%^m!cRkVCA51ww^e1cN5%N5^m!GRkVe?%k&wcCCcC5%Nw^^!1NNmcB51GwGCece5VNV^c5wRCm%/w11w1CCG}5^Nk^G!kRe^k/V1GwRoO5m5wNc^1%%kom5Om1GG^CeGw5VNc^R!Ck!mwVR11wCetGV5mNk^k%5!wmVbc1Rmme!GV5^N1kc%rkGmmQ11kwee%RV9kNRcw%!k1m^8N1NVmR%Gm5CNkG!%%kmmc!!1CVVwmG^51NNG%%5k^mG!I{!V%eVGcV5NCc%%wNGDe2NRmV5e1GG5kNe1%51kc^!nCR^VwecG15Ne%c5%NkGmkteR%VVec155CCGcw%Rk1mN!UR5m^eG1%5eC1cV%GkR^%%cRwV^e1R^wqCwcm%ecBme!5RVmVeRGew!Cmc^%C!e^y!5Rmmmek1qw%CV%^%RkC^!!VR^V1eNa!w5CmcG5C^w^%!VRcmeeC1!wwM^ew%NNr^5!mRG^ceek%VwCccR%CN!^w%wR1^N!c15wmCGck%eC5^V%1kcVC{51wVkC1cN57N5cm!GRkVeIw1Vw1CRGwwkNw^^!1kmmuZw1mw1CkG5cwNV^c!Rk^m!TV1^wC5eGv55NmNw!kkdm%%VkcwRCeG!5wN^cR!NN%NGxm1kwkeGG%5VNc^R5Nk!mVU^1NwNe%G55kwm^k%zk%^wuc1kwCe%Gw5R%k^N%rk5^VqG1NweemC^5cNR^C^kkwmcq1kN%we5G^5GNk^e%kkVcc%R1CV%ewGc51CCc*5V5kmGEe1eVCeVGc5RNC1?%wkcm1!fR4VVemGe!!Nec5%V%5mRBeR!Vwe^GCceCyc5%m%wmk!uR%^VkkGR5eC!cw%^NwmN5lm!Vme1GkwlC%G!%cCR^^!!RVV^eRGNV!C5Gc5!kk^%!%kVVceRGCw!e!c^%RkN^5!5RcVGH%1mw%CmcccmkC^%!wR^V1g!e%w5CmcGc^ke^5!VNc%eeC15wwCcc15KN8^GCRRGVCeeeNwVCGcR%CN!^cmGR1VNMAeCwmC1ckwe1m^V!1RRVe*!1Vw^e)m%56NV^m^wRkmS6%1VwcCeC}5!Nw^^^VRNm!.5km!NCkG!5%Nm^c!kRCc!%w1^wkCNG%55C^^G%C5Vm%+G1cm%CCG!5wN^GG!Nk%m5S11GwCCeGcM1Nc^N!C!kmwoc11wNeOG^ccNG^k!e!NmVqG1RmC!!Gw51N1^e%XNwmm!R%%wee^GVwpNR^C%!kwcm01RvV0ecGm5RNkcVe^kVmR=RMGV!eVG^51NNcw^VkmmGbk41V%emGcwNc5c!%^k^c%ZNRWV5!mw?5kC5c%%^kc^5#CN!m^e^GC5NCwc55ekGmk%VR%VGec1g5CC!cw%^C5mN!5R5VmeG1!5eCmG%%ckRmCm1RwVce1RNm<C5cC%GN5me!NRVm1^!GCwRCwGN%1kN^7!5NVVGiwGewkCVc1%RNwNC!wReV15m1)wwCmc1%kN5kw!VRcVR5^1!wVC^cC^eNo^5!m!!VkZ_1%mVRkcR5mN!^R!^NwVN%mNcwme!ckc^N%^m!ck%VCYVemw^C1cNccN5^^!GkCxw7%1Nwce1cC5!NwG^mcRNmcU51CwGe1ce5%NG^c%wRCm!4w1^w1;NG555CU^G%5Re^k;V1cweCCGG5wC!^1!ekAmGac1GVwCeC15VNG^R!ek!mcVG11wNeUCR5mN1^k5!m^mV!A1RVNe!Gw5^e1%G%4kRmm!!1kV5e%GV51NRc^%!kVm^L11N^2eeGmw5Nkcm%%NemcJRkGV!ekG^wwNNc!%5Nc^5{kR^V%KwGc5RNC1!%Vk^^%hNRcV5e1GG5ke1c%%CkcmR CR!Vw!^mC5NC1c5%NkGcmheR%Rcec155CCRcw%ck1mN%VR5VCeGGC5eC%cVwcNwmC!GRwVee11mw)C5ce%GNmme!%RVVReRRCwcCwG%%1Nw^t%NRmmGDeGewkCV1%%RNG^!wwRGV1#^1ywGCmcR%kNVNF!Vk5VReC1!wVC^ck%NN0RG!mRGVkZ%1%wVCccRR%N!^w!^k!VNE{15Vm Cck5GN%cc!ckmVC-!mRw^e%cN51N5^^!GRk!cg%1RwcCRcC5!Nw^NkCRNm5i5NGwGCNce5wNV^kmNRCm!-wN1w1CCG<wV^R^G!NRe^N{V1cwR,CmV5wNc^1!Ck-^VpmRRk%CeGw5VNN^R!Ck!mwcn11wCenGV5mN1^k%5!wmVsc1RwCe!GV5^N1!k%<k5mm811kwee%GG5cNR^C%5k1m^-11NwC^V!V1Gm%ek%wNwmc?R1Cwewm!VRVVcewGVwGk>^k5IN^mG!1RCCfcm%wk^m1jR55k5^c!55CC^c%%VkcmGcw%VN^mN<CR1mVcw%^kGmkZekmVVecGRwJCGcw%^k1mRme%Ckmc!!Zkpmwc^%NkRmC!!R%NNm1!Vk5CVcN%Gkkme!E!wN5mR!RkwmmcG5mkN^J!5Rw1e^}%%GwVkvU1mw!e%cc5wVks%1ow5Cmc^cG5eCCcGR1mGeC1!wwCVNk1RwkCeG15mNw^!!%kcmWIG1RN5^e!^R1VNeCeGR1mkCC15V5e1G(%NN%&51Cw^C1cN%C5GewG15mC!c!!VR1VeGz5CNw^^!1RRkm^5!Ckkw!yNR5%^CeG55GNwAm1Nw1CNG05!5VewG1w%CwF^R5wRCCG!5%%ke%GC5wkV^1%1N!m5!55^C1^R!Ck!m%mc!CkkmRQR1cwGeeG55Vk^cR%Gkem!/11RNkcG%-k5mmn^=^kNmwBVR551eGG!wkNRcR1eVVe5Gm5GN1eVG%w!Nk)NRNV!ewG^5c5%ec1d5GRCcw5}Nw^cC1R%VmekG^kG^%7NRtV5ewet1kmA4^GGw1CC!iRmVwe^G15Rm5e51cw5mC!VR%VVecGGRNV!ek1cwkme!eR5VmeGG1G!mMOS155eCUGwdRk^^R%%RwmV7G%RNwm
+-- credit toàn đẹp zai vcl
+-- vô đây nhìn cái gì ???
+local Rayfield = loadstring(game:HttpGet("https://sirius.menu/rayfield"))()
+
+local Window = Rayfield:CreateWindow({
+	Name = "ayypwm hub| Build an Island V1",
+	LoadingTitle = "ayypwm Hub",
+	LoadingSubtitle = "script loading",
+	ConfigurationSaving = {
+		Enabled = true,
+		FolderName = "ayypwmhubIsland",
+		FileName = "buildanislandayypwmhub"
+	},
+	KeySystem = false 
+})
+
+local Tab_Info = Window:CreateTab("📄 Info Script", 4483362458)
+Tab_Info:CreateParagraph({
+	Title = "ayypwm Hub",
+	Content = "Script nokey"
+})
+
+
+Tab_Info:CreateParagraph({
+    Title = "Ủng hộ ",
+    Content = "Nếu bạn thấy script hữu ích, hãy ủng hộ mình bằng cách vượt qua link bên dưới để mình có động lực phát triển script Cảm ơn bạn rất nhiều <3"
+})
+
+Tab_Info:CreateButton({
+    Name = "Ủng hộ qua Linkvertise",
+    Callback = function()
+        setclipboard("https://link-hub.net/1365790/jeTrfosHqFEP") -- thay bằng link của bạn
+        warn("Đã copy link ủng hộ vào clipboard!")
+    end
+})
+
+local Tab_Farm = Window:CreateTab("⚒️ Farm", 4483362458)
+
+local SelectedPlayer = game.Players.LocalPlayer.Name
+local AutoFarm = false
+local PlayerList = {}
+local Dropdown_FarmTarget = nil
+
+local function getResources(playerName)
+	local plots = game:GetService("Workspace"):WaitForChild("Plots")
+	local targetPlot = plots:FindFirstChild(playerName)
+	if targetPlot then
+		return targetPlot:FindFirstChild("Resources")
+	end
+	return nil
+end
+
+Dropdown_FarmTarget = Tab_Farm:CreateDropdown({
+	Name = "Chọn đảo để farm",
+	Options = PlayerList,
+	CurrentOption = SelectedPlayer,
+	Flag = "FarmTarget",
+	Callback = function(option)
+		SelectedPlayer = option
+		print("Đã chọn đảo:", SelectedPlayer)
+	end,
+})
+
+Tab_Farm:CreateButton({
+	Name = "Cập nhật người chơi",
+	Callback = function()
+		PlayerList = {}
+		for _, plr in ipairs(game.Players:GetPlayers()) do
+			table.insert(PlayerList, plr.Name)
+		end
+		if Dropdown_FarmTarget then
+			Dropdown_FarmTarget:UpdateOptions(PlayerList)
+			print("Danh sách người chơi đã được cập nhật")
+		end
+	end,
+})
+
+Tab_Farm:CreateToggle({
+	Name = " Auto Farm toàn đảo (máy yếu có thể tuột còn 0-10 fps)",
+	CurrentValue = false,
+	Flag = "AutoFarm",
+	Callback = function(state)
+		AutoFarm = state
+		if AutoFarm then
+			print("Đang Auto Farm đảo (máy yếu có thể tuột còn 0-10 fps):", SelectedPlayer)
+			task.spawn(function()
+				while AutoFarm do
+					local res = getResources(SelectedPlayer)
+					if res then
+						for _, r in ipairs(res:GetChildren()) do
+							if r:IsA("Model") then
+								task.spawn(function()
+									game:GetService("ReplicatedStorage")
+										:WaitForChild("Communication")
+										:WaitForChild("HitResource")
+										:FireServer(r)
+								end)
+							end
+						end
+					end
+					task.wait(0.5)
+				end
+			end)
+		else
+			print("Auto Farm đã tắt (máy yếu có thể tuột còn 0-10 fps)")
+		end
+	end,
+})
+
+local expand_delay = 0.1
+
+Tab_Farm:CreateToggle({
+	Name = "Auto nâng cấp đảo",
+	CurrentValue = false,
+	Flag = "AutoExpand",
+	Callback = function(Value)
+		if Value then
+			task.spawn(function()
+				while Rayfield.Flags.AutoExpand.CurrentValue do
+					local plr = game:GetService("Players").LocalPlayer
+					local plot = workspace:WaitForChild("Plots"):FindFirstChild(plr.Name)
+					if plot then
+						local expand = plot:FindFirstChild("Expand")
+						if expand then
+							for _, exp in ipairs(expand:GetChildren()) do
+								local top = exp:FindFirstChild("Top")
+								if top then
+									local bGui = top:FindFirstChild("BillboardGui")
+									if bGui then
+										for _, contribute in ipairs(bGui:GetChildren()) do
+											if contribute:IsA("Frame") and contribute.Name ~= "Example" then
+												local args = {
+													exp.Name,
+													contribute.Name,
+													1
+												}
+												game:GetService("ReplicatedStorage")
+													:WaitForChild("Communication")
+													:WaitForChild("ContributeToExpand")
+													:FireServer(unpack(args))
+											end
+										end
+									end
+								end
+								task.wait(0.01)
+							end
+						end
+					end
+					task.wait(expand_delay)
+				end
+			end)
+		end
+	end,
+})
+
+Tab_Farm:CreateSlider({
+	Name = "Expand Delay (giây)",
+	Range = {0.1, 5},
+	Increment = 0.1,
+	Suffix = "s",
+	CurrentValue = expand_delay,
+	Flag = "ExpandDelay",
+	Callback = function(v)
+		expand_delay = v
+	end,
+})
+
+local Tab_Craft = Window:CreateTab("🛠️ Craft", 4483362458)
+Tab_Craft:CreateParagraph({
+	Title = "",
+	Content = "beta"
+})
+
+local selected_crafter = nil
+local auto_craft_enabled = false
+local craft_delay = 2
+local crafter_dropdown = nil 
+
+local function getCrafters()
+	local list = {}
+	for _, c in pairs(game:GetService("Workspace").Plots[game.Players.LocalPlayer.Name]:GetDescendants()) do
+		if c.Name == "Crafter" then
+			local attachment = c:FindFirstChildOfClass("Attachment")
+			if attachment then
+				table.insert(list, c:GetFullName())
+			end
+		end
+	end
+	return list
+end
+
+crafter_dropdown = Tab_Craft:CreateDropdown({
+	Name = " Chọn vật phẩm Craft",
+	Options = getCrafters(),
+	CurrentOption = "",
+	Flag = "SelectCraftTarget",
+	Callback = function(value)
+		selected_crafter = value
+		print("Đã chọn:", value)
+	end,
+})
+
+Tab_Craft:CreateButton({
+	Name = "Cập nhật danh sách nơi Craft",
+	Callback = function()
+		local new_list = getCrafters()
+		crafter_dropdown:Refresh(new_list)
+		print("Đã làm mới danh sách Crafter")
+	end,
+})
+
+Tab_Craft:CreateSlider({
+	Name = " Delay mỗi lần Craft (giây)",
+	Range = {1, 20},
+	Increment = 1,
+	CurrentValue = 2,
+	Flag = "CraftDelay",
+	Callback = function(Value)
+		craft_delay = Value
+		print("🛠️ Delay Craft:", Value .. " giây")
+	end,
+})
+
+Tab_Craft:CreateToggle({
+	Name = "Auto Craft",
+	CurrentValue = false,
+	Flag = "AutoCraft",
+	Callback = function(Value)
+		auto_craft_enabled = Value
+		if Value then
+			print("Auto Craft đã bật")
+			task.spawn(function()
+				while auto_craft_enabled and selected_crafter do
+					local crafter = nil
+					pcall(function()
+						crafter = loadstring("return " .. selected_crafter)()
+					end)
+					if crafter then
+						local attachment = crafter:FindFirstChildOfClass("Attachment")
+						if attachment then
+							game:GetService("ReplicatedStorage"):WaitForChild("Communication"):WaitForChild("Craft"):FireServer(attachment)
+							print("🧪 Craft tại:", crafter:GetFullName())
+						end
+					end
+					task.wait(craft_delay)
+				end
+			end)
+		else
+			print("Auto Craft đã tắt")
+		end
+	end
+})
+
+local Tab_Shop = Window:CreateTab("🛒 Shop", 4483362458)
+Tab_Shop:CreateParagraph({
+	Title = "beta",
+	Content = "nói chuyện với npc merchant và mua vài món hàng để script load vật phẩm để mua"
+})
+
+local timerLabel
+
+timerLabel = Tab_Shop:CreateParagraph({
+	Title = "Reset shop sau...",
+	Content = "Đang tải..."
+})
+
+task.spawn(function()
+	while true do
+		local gui = game.Players.LocalPlayer:FindFirstChild("PlayerGui")
+		if gui then
+			local timer = gui:FindFirstChild("Main")
+				and gui.Main:FindFirstChild("Menus")
+				and gui.Main.Menus:FindFirstChild("Merchant")
+				and gui.Main.Menus.Merchant.Inner
+				and gui.Main.Menus.Merchant.Inner:FindFirstChild("Timer")
+
+			if timer and timer:IsA("TextLabel") then
+				timerLabel:Set({
+					Title = "Reset shop merchent sau:",
+					Content = timer.Text
+				})
+			end
+		end
+		task.wait(1)
+	end
+end)
+
+local selectedItems = {}
+local shownItems = {}
+local allItems = {}
+local autoBuying = false
+
+task.spawn(function()
+	while true do
+		local gui = game.Players.LocalPlayer:FindFirstChild("PlayerGui")
+		if gui and gui:FindFirstChild("Main") and gui.Main:FindFirstChild("Menus") then
+			local merchant = gui.Main.Menus:FindFirstChild("Merchant")
+			if merchant and merchant.Visible and merchant.Inner then
+				local frame = merchant.Inner:FindFirstChild("ScrollingFrame")
+				if frame and frame:FindFirstChild("Hold") then
+					for _, item in ipairs(frame.Hold:GetChildren()) do
+						if item:IsA("Frame") and item.Name ~= "Example" and not table.find(shownItems, item.Name) then
+							table.insert(allItems, item.Name)
+							table.insert(shownItems, item.Name)
+
+							Tab_Shop:CreateToggle({
+								Name = item.Name,
+								CurrentValue = false,
+								Callback = function(state)
+									if state then
+										table.insert(selectedItems, item.Name)
+									else
+										for i, v in ipairs(selectedItems) do
+											if v == item.Name then
+												table.remove(selectedItems, i)
+												break
+											end
+										end
+									end
+								end
+							})
+						end
+					end
+				end
+			end
+		end
+		task.wait(5)
+	end
+end)
+
+Tab_Shop:CreateToggle({
+	Name = "Auto Buy các vật phẩm đã chọn",
+	CurrentValue = false,
+	Callback = function(state)
+		autoBuying = state
+		if autoBuying then
+			task.spawn(function()
+				while autoBuying do
+					for _, item in ipairs(selectedItems) do
+						local args = {
+							[1] = item,
+							[2] = false
+						}
+						game:GetService("ReplicatedStorage").Communication.BuyFromMerchant:FireServer(unpack(args))
+						task.wait(0.25)
+					end
+					task.wait(1)
+				end
+			end)
+		end
+	end
+})
+
+Tab_Shop:CreateParagraph({
+	Title = "Shop Reset",
+	Content = "Danh sách cập nhật tự động khi mở shop"
+})
+
+local Tab_Sell = Window:CreateTab("💰 Sell", 4483362458)
+Tab_Sell:CreateParagraph({
+	Title = "",
+	Content = "beta."
+})
+
+local Players = game:GetService("Players")
+local ReplicatedStorage = game:GetService("ReplicatedStorage")
+local plr = Players.LocalPlayer
+
+local AutoSell = false
+
+Tab_Sell:CreateToggle({
+	Name = "Auto Sell (mỗi 3 giây)",
+	CurrentValue = false,
+	Flag = "AutoSell",
+	Callback = function(Value)
+		AutoSell = Value
+		if AutoSell then
+			task.spawn(function()
+				while AutoSell do
+					for _, item in pairs(plr.Backpack:GetChildren()) do
+						if item:GetAttribute("Sellable") then
+							local hash = item:GetAttribute("Hash")
+							if hash then
+								ReplicatedStorage.Communication.SellToMerchant:FireServer(false, {hash})
+								print("💰 Đã bán:", item.Name)
+							end
+						end
+					end
+					task.wait(3)
+				end
+			end)
+		end
+	end
+})
+
+local Tab_Collect = Window:CreateTab("📦 Collect", 4483362458)
+Tab_Collect:CreateParagraph({
+	Title = "tính năng thu hoạch cá sẽ được cập nhật sau",
+	Content = ""
+})
+
+Tab_Collect:CreateToggle({
+	Name = "Auto Harvest Plants",
+	CurrentValue = false,
+	Flag = "AutoHarvest",
+	Callback = function(Value)
+		getgenv().CollectHarvest = Value
+		task.spawn(function()
+			while getgenv().CollectHarvest do
+				local plot = game:GetService("Workspace"):WaitForChild("Plots"):FindFirstChild(game.Players.LocalPlayer.Name)
+				if plot and plot:FindFirstChild("Plants") then
+					for _, crop in pairs(plot.Plants:GetChildren()) do
+						game:GetService("ReplicatedStorage"):WaitForChild("Communication"):WaitForChild("Harvest"):FireServer(crop.Name)
+					end
+				end
+				task.wait()
+			end
+		end)
+	end
+})
+
+Tab_Collect:CreateToggle({
+	Name = "Auto Collect Honey",
+	CurrentValue = false,
+	Flag = "AutoHoney",
+	Callback = function(Value)
+		getgenv().CollectHoney = Value
+		task.spawn(function()
+			while getgenv().CollectHoney do
+				local land = game:GetService("Workspace"):WaitForChild("Plots"):FindFirstChild(game.Players.LocalPlayer.Name):FindFirstChild("Land")
+				for _, spot in ipairs(land:GetDescendants()) do
+					if spot:IsA("Model") and spot.Name:match("Spot") then
+						game:GetService("ReplicatedStorage"):WaitForChild("Communication"):WaitForChild("Hive"):FireServer(spot.Parent.Name, spot.Name, 2)
+					end
+				end
+				task.wait()
+			end
+		end)
+	end
+})
+
+Tab_Collect:CreateToggle({
+	Name = " Auto Collect Gold",
+	CurrentValue = false,
+	Flag = "AutoGold",
+	Callback = function(Value)
+		getgenv().CollectGold = Value
+		task.spawn(function()
+			while getgenv().CollectGold do
+				local land = game:GetService("Workspace"):WaitForChild("Plots"):FindFirstChild(game.Players.LocalPlayer.Name):FindFirstChild("Land")
+				for _, mine in pairs(land:GetDescendants()) do
+					if mine:IsA("Model") and mine.Name == "GoldMineModel" then
+						game:GetService("ReplicatedStorage"):WaitForChild("Communication"):WaitForChild("Goldmine"):FireServer(mine.Parent.Name, 2)
+					end
+				end
+				task.wait()
+			end
+		end)
+	end
+})
+
+local Tab_Events = Window:CreateTab("🎉 Events", 4483362458)
+Tab_Events:CreateParagraph({
+	Title = "Chưa có tính năng",
+	Content = "Tính năng Events sẽ được cập nhật sau:(("
+})
+
+local Tab_Misc = Window:CreateTab("🧩 Misc", 4483362458)
+Tab_Misc:CreateParagraph({
+	Title = "",
+	Content = "beta"
+})
+
+local AntiAFKConnection = nil
+
+Tab_Misc:CreateToggle({
+	Name = "Anti-AFK",
+	CurrentValue = false,
+	Flag = "AntiAFK",
+	Callback = function(Value)
+		if Value then
+			local vu = game:GetService("VirtualUser")
+			AntiAFKConnection = game:GetService("Players").LocalPlayer.Idled:Connect(function()
+				vu:CaptureController()
+				vu:ClickButton2(Vector2.new())
+				print("Đã giả lập thao tác tránh AFK")
+			end)
+			print("Anti-AFK Đã bật")
+		else
+			if AntiAFKConnection then
+				AntiAFKConnection:Disconnect()
+				AntiAFKConnection = nil
+				print("Anti-AFK Đã tắt")
+			end
+		end
+	end,
+})
+
+
+Tab_Misc:CreateSlider({
+	Name = "Speed Nhân Vật",
+	Range = {16, 50},
+	Increment = 1,
+	CurrentValue = 16,
+	Flag = "WalkSpeed",
+	Callback = function(Value)
+		game.Players.LocalPlayer.Character.Humanoid.WalkSpeed = Value
+	end,
+})
+
+
+Tab_Misc:CreateToggle({
+	Name = " Infinity Jump",
+	CurrentValue = false,
+	Flag = "InfJump",
+	Callback = function(state)
+		if state then
+			
+			infJumpConnection = game:GetService("UserInputService").JumpRequest:Connect(function()
+				local player = game.Players.LocalPlayer
+				local character = player.Character or player.CharacterAdded:Wait()
+				local humanoid = character:FindFirstChildOfClass("Humanoid")
+				if humanoid then
+					humanoid:ChangeState(Enum.HumanoidStateType.Jumping)
+				end
+			end)
+		else
+			
+			if infJumpConnection then
+				infJumpConnection:Disconnect()
+			end
+		end
+	end,
+})
+
+Tab_Misc:CreateButton({
+	Name = "Rejoin Server (chỉ hoạt động với server công cộng)",
+	Callback = function()
+		local ts = game:GetService("TeleportService")
+		local plr = game.Players.LocalPlayer
+		ts:Teleport(game.PlaceId, plr)
+	end,
+})
