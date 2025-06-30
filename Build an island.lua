@@ -3,7 +3,7 @@
 local Rayfield = loadstring(game:HttpGet("https://sirius.menu/rayfield"))()
 
 local Window = Rayfield:CreateWindow({
-	Name = "ayypwm hub| Build an Island V1",
+	Name = "ayypwm hub | Build an Island V1 🇻🇳",
 	LoadingTitle = "ayypwm Hub",
 	LoadingSubtitle = "script loading",
 	ConfigurationSaving = {
