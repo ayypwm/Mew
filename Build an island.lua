@@ -30,7 +30,7 @@ VNButton.BackgroundColor3 = Color3.fromRGB(50, 150, 50)
 VNButton.TextColor3 = Color3.new(1,1,1)
 VNButton.MouseButton1Click:Connect(function()
 	ScreenGui:Destroy()
-	loadstring(game:HttpGet("https://raw.githubusercontent.com/ayypwm/Mew/main/Build%20an%20island.lua"))()
+	loadstring(game:HttpGet("https://raw.githubusercontent.com/ayypwm/MewVietnamese/main/Vietnamese.lua"))()
 end)
 
 local ENButton = Instance.new("TextButton", Frame)
